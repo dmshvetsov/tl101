@@ -1,0 +1,1 @@
+An attempt to give advice without asking someone for whom the advice is intended can have an unexpected effect. It may hurt their self-esteem, and you may end up in a tricky situation where the person in trouble will distance themselves from you because of your attempt to help. They may use lies or unrealistic promises to prove their worth and ultimately fail even harder.
